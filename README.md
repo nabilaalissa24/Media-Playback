@@ -4,7 +4,7 @@
 Link File APK : <br> <br>
 
 
-Identitas Siswa : <br> <br>
+Identitas Siswa : <br>
 
 Nama Lengkap : Nabila Alissa Alifia Putri <br>
 Kelas        : XII RPL 5 <br>
